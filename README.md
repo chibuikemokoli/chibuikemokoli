@@ -1,4 +1,4 @@
-### Hi there 👋
+### Aye!
 
-- 👋 https://ceo-dev.vercel.app
-- 📫 How to reach me , email : chibuikem.okoli@yahoo.com
+- 🕸️ https://ceo-dev.vercel.app
+- 📫 chibuikem.okoli@yahoo.com
